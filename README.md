@@ -11,5 +11,5 @@ Current Projects
 -. — short description
 
 How to Reach Me
-Email: [kuriarobert41@gmail.com]
+Email: [victorirungu90@gmail.com]
 linkedin:[https://github.com/victor881-tech
